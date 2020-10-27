@@ -1,2 +1,0 @@
-# asmaulhusnabd.github.io
-Portfolio
